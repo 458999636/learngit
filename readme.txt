@@ -6,3 +6,4 @@ There's no escaping reason ,no denying purpose.
 I have a dream;
 Creating a new branch is quick
 Learn to focus on what you can change and not worry about what you can't change.
+Learn to focus on what you can change and not worry about what you can't change.
