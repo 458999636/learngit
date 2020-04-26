@@ -9,3 +9,4 @@ Learn to focus on what you can change and not worry ahout what you can't change
 Learn to focus on what you can change and not worry about what you can't change
 Learn to focus on what you can change and not worry about what you can't change.
 Learn to focus on what you can change and not worry about what you can't change.
+Sometims that thing you are searching for your whole life ,It's right there by your side all along
