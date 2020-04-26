@@ -10,3 +10,4 @@ Learn to focus on what you can change and not worry about what you can't change
 Learn to focus on what you can change and not worry about what you can't change.
 Learn to focus on what you can change and not worry about what you can't change.
 There's no escaping reason, no denying purpose.
+Sometims that thing you are searching for your whole life ,It's right there by your side all along
